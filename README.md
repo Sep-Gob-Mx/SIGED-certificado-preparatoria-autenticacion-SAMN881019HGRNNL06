@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAMN881019HGRNNL06
+SAMN881019HGRNNL06
